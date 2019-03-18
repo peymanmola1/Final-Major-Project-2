@@ -1,6 +1,8 @@
 # Final-Major-Project
 
 ## Research
+https://drive.google.com/drive/folders/1PfBFpk6ChrN0Df7YcZqb7xtgojCp5KKa?usp=sharing
+
 ## Moodboards
 https://drive.google.com/drive/folders/1OdQIGKIqrQtDmMkiK7D-XwOSauGJrtgt?usp=sharing
 
