@@ -9,6 +9,9 @@ https://drive.google.com/drive/folders/1OdQIGKIqrQtDmMkiK7D-XwOSauGJrtgt?usp=sha
 ## Design
 https://drive.google.com/drive/folders/12snPnpkiUDuRgvIJweaqvFjOzSl9I_Kv?usp=sharing
 
+## Buisness Plan Template
+https://docs.google.com/document/d/1l17Rs5TxZc4bI9cPwY526UFCz1HKOQKQJtnJu4nzNk8/edit?usp=sharing
+
 ## Presentation
 https://drive.google.com/file/d/1USBUU35YpYS20ajp5v-vyoJ_23GCTWPB/view?usp=sharing
 
