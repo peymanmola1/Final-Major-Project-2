@@ -13,7 +13,7 @@ https://drive.google.com/drive/folders/12snPnpkiUDuRgvIJweaqvFjOzSl9I_Kv?usp=sha
 https://docs.google.com/document/d/1l17Rs5TxZc4bI9cPwY526UFCz1HKOQKQJtnJu4nzNk8/edit?usp=sharing
 
 ## Presentation
-https://drive.google.com/file/d/1USBUU35YpYS20ajp5v-vyoJ_23GCTWPB/view?usp=sharing
+https://drive.google.com/file/d/1cJzUv9hiZzh9x48DEuNcrP_0LrSR7lM5/view?usp=sharing
 
 ## Blogs Term 1
 https://medium.com/@peymanmola/choose-3-of-your-problems-to-explore-and-critically-explain-the-reasoning-behind-why-you-are-ae00b5d7ec7
